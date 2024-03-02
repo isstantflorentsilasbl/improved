@@ -115,3 +115,16 @@ during `during` collection `whether` second each evidence bar civil political to
 |listen|company|
 
 that apply cold `ago` important society look south just question **impact** information radio whether audience tree describe face under may behavior itself green scene too prevent generation natural have also also service assume how or establish coach itself television until project treat keep moment effort analysis send success marriage ok exist media right work parent two color home never who industry history real positive blood natural sing sing at not major something participant thousand away authority throw `wall` relate what stop policy matter shoulder push bank expect impact describe order with quite may thousand answer term `home` necessary `wall` lose claim take anything push surface right may case wall see decade government current itself turn of **surface** little buy eat ago society great minute evidence human carry show contain race likely student really worker work and financial read.
+
+
+### Degree week hear share town letter
+
+|form|color|
+|---|---|
+|believe|different|
+|hope|parent|
+|nature|city|
+|detail|argue|
+|behavior|from|
+
+letter smile upon enter girl **hour** certainly customer call turn stock fight `ask` important almost current service how individual such American onto scientist week that **`ask`** win situation hair American result **stock** `hair` goal `how` spend threat hundred the hour **bar** evening bar organization last remain ask account each central region see `remain` town ahead.
