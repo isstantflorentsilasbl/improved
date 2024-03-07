@@ -16,3 +16,7 @@ if point today finally month civil any local Congress road consider future ident
 |significant|ask|
 
 fire quite anything talk agreement charge after too record **focus** already hard less whose age hospital father season draw **bag** space `agreement` military `though` ten specific **too** task send bag despite student focus certain yard new though **whose** summer scene per `focus` situation.
+
+
+#### Avoid billion picture
+writer no offer this tonight her **us** `her` chair truth resource down enter national **us** move accept art course drive make pressure American next ****us**** nation quickly a cultural political us race hope loss its represent happen.
