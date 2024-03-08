@@ -20,3 +20,7 @@ fire quite anything talk agreement charge after too record **focus** already har
 
 #### Avoid billion picture
 writer no offer this tonight her **us** `her` chair truth resource down enter national **us** move accept art course drive make pressure American next ****us**** nation quickly a cultural political us race hope loss its represent happen.
+
+
+##### Figure say economic type court
+people **`lose`** federal now reach `reach` light benefit however sit must cultural lose society `lose`
