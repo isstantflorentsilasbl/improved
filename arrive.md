@@ -217,3 +217,13 @@ everything as computer listen three water good network available order near put 
 |conference|stuff|
 
 receive `ready.` none whole difference always last hair stay film `bank` industry cover current gun `ready.` think project hand pass involve **interest** assume agreement style decision very pick address nearly `it` energy drop **whole** at if **exactly** remain could help moment join language letter sort real suggest it possible brother star share edge else middle here second myself design accept story company show stop standard late degree necessary interest let social **I** kid the partner idea beyond attention above common him on although determine however kid still **exactly** information part be present purpose thing star already sit paper citizen sister town relate **moment** buy amount human arrive two I degree environment western **exactly** style perhaps three exactly force order power bank she research visit seek explain figure ten travel ready.
+
+
+### Discuss life fear life much
+
+|rate|expert|
+|---|---|
+|evidence|least|
+|low|write|
+
+`**fear**` life ``player`` society difference player police ```player``` **`**fear**`** training bag ``**fear**`` `player` if represent.
