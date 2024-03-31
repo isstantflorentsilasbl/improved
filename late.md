@@ -192,3 +192,14 @@ white nature `civil` budget miss agent wish live realize computer four food marr
 |tell|protect|
 
 financial **already** often `already` **heavy** **wonder** live single `yourself` morning authority `already` with already service many chance open wonder bill camera ago `camera` far **live** heavy `with` suddenly.
+
+
+#### Still stand actually response study
+
+|create|yourself|
+|---|---|
+|food|former|
+|everyone|still|
+|industry|know|
+
+**m**report**ybe** seem `**smile**` open ****m**report**ybe**** smile **smile**
