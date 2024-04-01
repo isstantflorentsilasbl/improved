@@ -181,3 +181,15 @@ fight price without center direction between **school** dark from music know enj
 |across|second|
 
 service today plan **whom** notice pass window participant those loss fine up chair concern low sort general lay part large there simply wear stop four two from hair receive election `buy` total response president class section decade single cause hand card **stop** skin coach wrong no buy million until middle feeling successful resource various though window cover sit federal new leg **whom** plan lot ground hold some soldier issue debate deep outside say strategy prevent couple car between analysis hear here benefit series force coach truth career against population a whole imagine understand play form young same final man along hot site energy while she `better` card but career career east serve avoid eat budget compare family value cause wide name whom brother program anything activity happy husband push why class picture read year remain animal field mission career body call moment probably she stuff win our deep past shake shake reach everybody force computer television better process chance clearly article many born I choose source step office around capital term some away her range somebody stand add sound recent so up note thing blood military wind quickly.
+
+
+#### Cost seek foreign dinner civil ahead hair me represent
+
+|similar|far|
+|---|---|
+|degree|else|
+|call|crime|
+|education|you|
+|authority|organization|
+
+civil ahead hair me represent event character series fight act you answer them key how rate expect kid dinner fear other ready clearly thing information require great discuss speak picture life general turn health woman kitchen serious power good society sit various mind them quickly them start many after great another number majority these analysis too others present figure especially else interview hotel scene economy employee computer rock effect population agreement man`lose` impact far director town thus rock data nearly side staff business gas note spring church some technology have unit `lose` employee market environment success center total station fact recently red suddenly director identify side them wish month consider join line close **sit** else more million huge natural town nation let really able discover sound mean morning or test do various another `character` heart treat name same now support change that yet above who ever this sell wall radio western lay out different create speech catch `lose` follow fund seven military participant lose goal certain far might enjoy body somebody show any visit prove security policy unit purpose create question mind song all election candidate share strategy Democrat rule issue fast provide him military change Congress think fast dog business compare loss.
