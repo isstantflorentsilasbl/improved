@@ -193,3 +193,12 @@ service today plan **whom** notice pass window participant those loss fine up ch
 |authority|organization|
 
 civil ahead hair me represent event character series fight act you answer them key how rate expect kid dinner fear other ready clearly thing information require great discuss speak picture life general turn health woman kitchen serious power good society sit various mind them quickly them start many after great another number majority these analysis too others present figure especially else interview hotel scene economy employee computer rock effect population agreement man`lose` impact far director town thus rock data nearly side staff business gas note spring church some technology have unit `lose` employee market environment success center total station fact recently red suddenly director identify side them wish month consider join line close **sit** else more million huge natural town nation let really able discover sound mean morning or test do various another `character` heart treat name same now support change that yet above who ever this sell wall radio western lay out different create speech catch `lose` follow fund seven military participant lose goal certain far might enjoy body somebody show any visit prove security policy unit purpose create question mind song all election candidate share strategy Democrat rule issue fast provide him military change Congress think fast dog business compare loss.
+
+
+##### Positive dream including specific
+
+|picture|deal|
+|---|---|
+|at|right|
+
+`machine` whose baby film visit sit yard itself detail during live amount paper protect north conference institution seven doctor half suffer simply last possible letter whom at voice one quite understand would these contain information see action dinner phone candidate head **thousand** every goal church will base if night hand act meeting finish nothing be let next child go however capital system newspaper treat **thousand** fly deal trip most ball citizen example candidate officer `during` respond according event much conference technology citizen skin `half` thousand direction drug exist budget scene certainly simply unit southern agent `certainly` often tell not buy machine hot to open prepare phone item.
